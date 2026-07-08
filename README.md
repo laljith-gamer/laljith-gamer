@@ -2,7 +2,7 @@
 
 **laljith-gamer/laljith-gamer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started: im not gay
+Here are some ideas to get you started: vaagi is sexy gay
 
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
